@@ -1,1 +1,0 @@
-Umano, 53 anni, ricco commerciante emarginato, sposato con [[Madre di Kadmius]], padre di [[Kadmius]], vive al confine tra la città di [[Lungacqua]] e il vicino[[ Bosco di Pais]]

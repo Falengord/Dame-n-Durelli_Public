@@ -1,1 +1,0 @@
-sposata con [[Padre di Thor Tell I]], madre di [[Thor Tell I]], cugina del re dei nani
