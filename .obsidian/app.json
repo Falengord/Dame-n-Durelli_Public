@@ -1,0 +1,12 @@
+{
+  "promptDelete": false,
+  "userIgnoreFilters": [
+    "Templates/",
+    "Images/",
+    "References/",
+    "Spell/"
+  ],
+  "alwaysUpdateLinks": true,
+  "readableLineLength": false,
+  "strictLineBreaks": false
+}

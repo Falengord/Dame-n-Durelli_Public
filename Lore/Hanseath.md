@@ -1,0 +1,5 @@
+detto Il barbuto; è il dio della birra, dei giochi e della musica
+ I chierici e i paladini devoti a Hanseath rifiutano la violenza per motivazioni politiche (quella per le risse è ben accetta) e sono in teoria esonerati dal servizio militare.
+ Paladino di Hanseath, anche noti come Paladini Ispidi fra i nani
+  il Boccale Duro. Si tratta di un boccale che viene conferito a chi si unisce alla setta di Hanseath. Per voto, posso bere alcolici solo da quel boccale. 
+  Nota di colore: viene detto Boccale Duro per il rito che si utilizza nel suo conferimento. Quando si diventa servi di Hanseath, i nostri chierici fabbricano un boccale magico. Il nuovo affiliato beve dal boccale e, quando lo ha svuotato in un sorso, il chierico lo spacca in testa al nuovo affiliato. Se il calice non si rompe, il nuovo affliato viene accettato nella setta e gli viene donato il calice. Se il calice si rompe, vuol dire che non è ancora pronto.

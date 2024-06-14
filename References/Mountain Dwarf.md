@@ -1,0 +1,3 @@
+Subclass from [[Dwarfs]]
+
+As a mountain dwarf, you're strong and hardy,accustomed to a difficult life in rugged terrain. You’reprobably on the tall side (for a dwarf), and tend towardlighter coloration. The shield dwarves o f northernFaerun, as w ell as the ruling Hylar clan and the nobleDaewar clan o f Dragonlance, are mountain dwarves.Ability Score Increase. Your Strength scoreincreases by 2.Dwarven Armor Training. You have proficiency withlight and medium armor.

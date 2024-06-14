@@ -1,0 +1,1 @@
+cervo con le corna dorate, disperso, allevato da [[Folto Scheggia di rovo]], amico d'infanzia di [[PC/Frear]]

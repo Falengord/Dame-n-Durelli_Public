@@ -1,0 +1,1 @@
+mamma di [[PC/Frear]] morta di parto, elfa, sposata con [[Folto Scheggia di rovo]]

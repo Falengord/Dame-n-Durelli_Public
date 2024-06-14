@@ -1,0 +1,1 @@
+L'organizzazione creata nella [[Nazione Sovrana di Brusterca]] per occuparsi di ogni problema comune
